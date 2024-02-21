@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Karansingh2720 (Kashii)
-- 👀 I’m interested in coding and sleeping 😴 
+- 👀 Love to Code.
 - 🌱 I’m currently learning ECMAScript.
 - 📫 How to reach me ks3347316@gmail.com  || https://www.linkedin.com/in/karan-singh-00b62a216
